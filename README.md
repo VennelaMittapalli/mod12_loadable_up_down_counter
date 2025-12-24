@@ -1,3 +1,13 @@
+<img width="1392" height="944" alt="image" src="https://github.com/user-attachments/assets/9f035392-3248-4040-8700-6280a821f9a4" />
+
+
+
+
+
+
+
+
+
 RESULT
 -----------------------Randmomized data----------------------------------------------
 
